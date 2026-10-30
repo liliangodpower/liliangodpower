@@ -1,4 +1,4 @@
-# Hi, I'm Lilian Godpower 👋
+# Hi, I'm Lilian Jonathan Godpower 👋
 
 ### Administrative & Executive Virtual Assistant
 
